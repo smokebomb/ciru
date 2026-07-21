@@ -1,4 +1,24 @@
-<p align="center">
-  
-  <img src="https://github.com/user-attachments/assets/e506fbbf-ef08-40f3-9569-006d02ef28b5"> <img src="https://i.postimg.cc/7Zz9s9NT/vsu5vu.png"> <img src="https://i.postimg.cc/sxzsfCHW/dbroruc-5c476c41-9dd5-40e7-bdb0-ba8d3cb3d6ed.gif"> <img src="https://i.postimg.cc/XqCM7rxR/nuko.png"> <img src="https://i.postimg.cc/wBWms0Y3/09360185f508affcc4a43d10e19377792af48603-gifv.gif">
+ <img align="left" width="350px" salt="image" src="https://file.garden/aOzMKcIeICuTJJmk/IMG_8765.PNG" />
 
+ </p>
+
+ 　 $\small\color{#b2ab92}{\textsf{Es}}$ $\small\color{#5f6856}{\textsf{de}}$ $\small\color{#303e33}{\textsf{anatomía}}$ $\small\color{#5f6856}{\textsf{.ᐟ}}$
+
+$\small\color{#b2ab92}{\textsf{, 　Idéntica}}$ $\small\color{#5f6856}{\textsf{a la 𓂃}}$ $\small\color{#303e33}{\textsf{mía}}$
+
+　 $\small\color{#b2ab92}{\textsf{Su rostro}}$ $\small\color{#5f6856}{\textsf{݁es de}}$ $\small\color{#303e33}{\textsf{alegría}}$ $\small\color{#5f6856}{\textsf{݁🗡}}$
+
+ $\small\color{#b2ab92}{\textsf{' El mío}}$ $\small\color{#5f6856}{\textsf{݁es de}}$ $\small\color{#303e33}{\textsf{agonía ۫ ׅ...}}$
+
+<a href="https://rentry.co/yeon_sieun">
+  <img src="https://file.garden/aOzMKcIeICuTJJmk/IMG_8770.PNG" alt="rentry" width="100">
+</a> 
+
+<a href="https://male1pregnancy.carrd.co/">
+  <img src="https://file.garden/aOzMKcIeICuTJJmk/IMG_8772.PNG" alt="rentry" width="100">
+</a>
+
+
+ 　  　<a href="https://zombie-picnic.atabook.org">
+  <img src="https://file.garden/aOzMKcIeICuTJJmk/IMG_8773.PNG" alt="rentry" width="120">
+</a>
